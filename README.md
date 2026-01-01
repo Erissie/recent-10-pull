@@ -1,1 +1,1 @@
-# recent-10-pull
+(picture of a 10 pull in a gacha game where i got the limited malleus card)[https://media.discordapp.net/attachments/1020538186025418793/1455866111080796294/image.png?ex=6956f139&is=69559fb9&hm=3f46bb377d27922896ce1366f2945ee98f3c8e95f7a41d762c90936b6301fd99&=&format=webp&quality=lossless&width=1335&height=616]
